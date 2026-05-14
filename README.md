@@ -2,6 +2,8 @@
 
 ## Trump’s “Big Beautiful Bill” Steals from the Poor, Gives to the Rich
 
+The <a href="https://www.cbo.gov/system/files/2025-08/61367-Distributional-Effects.pdf">report concluded:</a> “In general, resources will decrease for households toward the bottom of the income distribution, whereas resources will increase for households in the middle and toward the top.”
+
 Study after study shows that Trump’s bill makes everyday Americans worse off while giving massive tax breaks to the wealthy.
 
 <a href="https://budgetmodel.wharton.upenn.edu/p/2025-07-08-president-trump-signed-reconciliation-bill/#:~:text=On%20a%20conventional,all%20future%20generations.">The University of Pennsylvania</a> (Trump’s alma mater) estimates that the top 10% of earners will receive 80% of the benefits of the legislation, while the bottom 40% will see their incomes decrease.
