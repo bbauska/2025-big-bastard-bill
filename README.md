@@ -1,4 +1,4 @@
-# 2025-big-bastard-bill
+# 2025-big-bastard-bill (BBB) - cruelty by 'christian fundamentalists'
 
 ## Trump’s “Big Beautiful Bill” Steals from the Poor, Gives to the Rich
 
