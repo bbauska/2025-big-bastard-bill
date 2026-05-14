@@ -29,7 +29,7 @@ But my fellow South Carolinians, the facts are the facts: This <a href="https://
 
 Trump’s policies have done nothing but push the American dream further out of reach.
 
-<p>From <a href="https://www.americanprogress.org/article/7-ways-the-big-beautiful-bill-cuts-taxes-for-the-rich/">Center for American Progress</a></p>
+<h2>From <a href="https://www.americanprogress.org/article/7-ways-the-big-beautiful-bill-cuts-taxes-for-the-rich/">Center for American Progress</a></h2>
 
 Over the next decade, the Big Beautiful Bill (BBB) will cut taxes for the richest 10 percent of Americans by more than $14,700 per year per household and cut taxes for the richest 1 percent of Americans by more than $50,000 per year, according to estimates from the nonpartisan Congressional Budget Office (CBO) and Joint Committee on Taxation (JCT). Despite this, there has been comparatively little coverage of the specific mechanisms by which the BBB funnels money to the ultrarich. Meanwhile, tiny tax cuts for the working class have received disproportionate media attention, even as the BBB will reduce the incomes of the poorest Americans.
 
