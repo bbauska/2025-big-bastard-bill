@@ -17,8 +17,6 @@ And if stealing from the poor and giving to the rich isn’t bad enough, Trump�
 
 That means not only more interest on the national debt, but also higher interest rates for <a href="https://www.politico.com/news/2025/08/04/congressional-budget-office-gop-megabill-to-cost-4-1t-drive-up-borrowing-costs-00492581#:~:text=In%20an%20analysis,cars%20to%20homes.">car loans and mortgages</a>.
 
-The <a href="https://itep.org/analysis-of-tax-provisions-in-senate-reconciliation-bill/">Institute of Taxation and Economic Policy</a> estimates that in 2026, South Carolina’s wealthiest 1%—those making over $782,500 a year—will receive an <a href="https://itep.org/analysis-of-tax-provisions-in-senate-reconciliation-bill/">average tax cut of $68,260</a>, while the lowest-income residents, earning under $23,200, will face an <a href="https://itep.org/analysis-of-tax-provisions-in-senate-reconciliation-bill/">average tax increase of $30</a>, in addition to steep cuts to Medicaid and SNAP.
-
 And if stealing from the poor and giving to the rich isn’t bad enough, Trump’s bill will <a href="https://www.cbo.gov/publication/61570#:~:text=Some%20of%20those%20budgetary%20effects%20are%20associated%20with%20programs%20that%20are%20classified%20as%20off%2Dbudget.%20The%20increase%20in%20the%20on%2Dbudget%20deficit%20over%20that%20period%20is%20estimated%20at%20%243.4%20trillion.">add $3.4 trillion to the debt</a> over 10 years and <a href="https://www.crfb.org/blogs/senate-obbba-charts#:~:text=1.%20Senate%20OBBBA,deficit%20by%202034.">cost taxpayers $700 billion</a> in additional interest payments on that debt over the next decade.
 
 That means not only more interest on the national debt, but also higher interest rates for car loans and mortgages.
