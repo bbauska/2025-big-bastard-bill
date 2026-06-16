@@ -19,7 +19,7 @@ That means not only more interest on the national debt, but also higher interest
 
 Trump <a href="https://www.nbcnews.com/politics/white-house/trump-signs-big-tax-cut-spending-bill-law-july-fourth-ceremony-rcna216753#:~:text=%E2%80%9CWe%20have%20officially%20made%20the%20Trump%20tax%20cuts%20permanent.%20That%E2%80%99s%20the%20largest%20tax%20cut%20in%20the%20history%20of%20our%20country%2C%E2%80%9D%20he%20continued.%20%E2%80%9CWe%E2%80%99re%20setting%20all%20sorts%20of%20economic%20records%20right%20now%2C%20and%20that%E2%80%99s%20before%20this%20kicks%20in.%20After%20this%20kicks%20in%2C%20our%20country%20is%20going%20to%20be%20a%20rocket%20ship%2C%20economically.%E2%80%9D">claimed</a> you’ll get a historic tax cut from this bill. He’s claimed this bill will “fuel prosperity” for all.
 
-But my fellow South Carolinians, the facts are the facts: This <a href="https://apnews.com/article/trump-tax-cuts-food-stamps-6542e448a2f6ed7b93ab8f7fe84ac53a">law</a> makes America’s poor poorer, rich richer, and <a href="https://www.crfb.org/blogs/senate-obbba-charts">saddles everyone</a>— even our children and grandchildren—with insurmountable debt and a higher cost of living.
+But my fellow Americans, the facts are the facts: This <a href="https://apnews.com/article/trump-tax-cuts-food-stamps-6542e448a2f6ed7b93ab8f7fe84ac53a">law</a> makes America’s poor poorer, rich richer, and <a href="https://www.crfb.org/blogs/senate-obbba-charts">saddles everyone</a>— even our children and grandchildren—with insurmountable debt and a higher cost of living.
 
 Trump’s policies have done nothing but push the American dream further out of reach.
 
